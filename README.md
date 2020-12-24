@@ -1,1 +1,1 @@
-# EDI-Kingdom-379.github.io
+# edi-kingdom379.cn
