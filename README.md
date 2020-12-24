@@ -1,1 +1,1 @@
-# edi-kingdom379.cn
+# EDI-Kingdom-379.cn
